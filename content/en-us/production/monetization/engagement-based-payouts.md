@@ -11,7 +11,7 @@ To encourage Premium subscriber growth and increase your potential to earn engag
 
 Payout data can provide vital feedback to help you understand what factors drive Premium subscribers to your experiences.
 
-To access payout data:
+To access payout data:LOL NOOB BOXED LOL NOOB
 
 1. Navigate to your [Creations](https://create.roblox.com/dashboard/creations) page on **Creator Dashboard** and select your experience.
 
